@@ -1,1 +1,1 @@
-Welsom to Input Zero
+Welcome to Input Zero
